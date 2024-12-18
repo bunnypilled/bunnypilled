@@ -37,6 +37,8 @@ fan + astro + gr13fer + many others irl
 im afk offtab almost all the time, pls whisp me instead i also hav a touch comf so ff2cud/cuddpile anytime even if im sitting w sum1 C:
 <br>
 I LUV STAMPS !!! I LAUV STAMPS CAN U TELL. C
+<br>
+i dont consider myself to be a dw fan/in the fandom? im js an irl but ill probably leave u alone if u have fndmdni in ur name :") idont wanna make u uncomf
 
 <p align="center"
   
