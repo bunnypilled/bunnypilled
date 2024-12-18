@@ -7,6 +7,8 @@
 hihello ! no longer use patreon so everything will be moved here, itll b a yap sesh so if u dont rlly care pls go 2 my strawpage instead for shortened info !! ty
 <br>
 *was @robotpilled*
+<br>
+PLSPLSPLSPLS PLEASE THINK OF ME AS THE BUNNY PERSON PLEAG,, 
 
 <p align="center"
   
