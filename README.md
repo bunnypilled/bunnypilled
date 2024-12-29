@@ -24,6 +24,8 @@ PLSPLSPLSPLS PLEASE THINK OF ME AS THE BUNNY PERSON PLEAG,,
 <br>
 bpdtistic - when i say iwc *i mean it*
 <br>
+to add onto that depending on the char im attached to i may be weirdly blunt or uninterested in talking.. sorry :(
+<br>
 yes i am a hh/hb fan, i dont support viv ALSO #1 STOLAS HATER
 <br>
 if u couldnt tell i luv christmas + bunnies,,
@@ -32,7 +34,7 @@ irl buny boy, if u see me online js knoe this who ur talking 2 !! -> ![.](https:
 <br>
 selfshipper !! nonsharing sorry,, smg43 + fandom iwc?
 <br>
-fan + astro + gr13fer + many others irl
+adam + astro + v1 + many others irl
 <br>
 im afk offtab almost all the time, pls whisp me instead i also hav a touch comf so ff2cud/cuddpile anytime even if im sitting w sum1 C:
 <br>
