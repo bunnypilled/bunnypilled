@@ -4,11 +4,11 @@ pls lmk if u see this person around they kinda copied/took heavy inspo from my p
 <br>
 theirs
 <br>
-![.](https://media.discordapp.net/attachments/1174132569797840948/1324093570281377843/IMG_8424.jpg?ex=6776e5bb&is=6775943b&hm=c11564366c77065b26a181523fcf1ddf0d97767fcd3a07bb6629cfaa5c1514c3&=&format=webp&width=409&height=545)
+![.](https://media.discordapp.net/attachments/1174132569797840948/1324093570281377843/IMG_8424.jpg?ex=6776e5bb&is=6775943b&hm=c11564366c77065b26a181523fcf1ddf0d97767fcd3a07bb6629cfaa5c1514c3&=&format=webp&width=209&height=345)
 <br>
 mine
 <br>
-![.](https://media.discordapp.net/attachments/907011345801699351/1324106161779249223/image.png?ex=6776f175&is=67759ff5&hm=84a1cb4982f80989f91cad5306672f28dbea6a903dd630bbc9700feedab6220f&=&format=webp&quality=lossless&width=387&height=448)
+![.](https://media.discordapp.net/attachments/907011345801699351/1324106161779249223/image.png?ex=6776f175&is=67759ff5&hm=84a1cb4982f80989f91cad5306672f28dbea6a903dd630bbc9700feedab6220f&=&format=webp&quality=lossless&width=187&height=248)
 <br>
   
 ![.](https://64.media.tumblr.com/5be87049dbb6b99326067bc04022473d/8742a5525a904cb2-32/s2048x3072/40040085fe609943f49d10751f61953d7a1e1ec9.pnj)
