@@ -54,7 +54,7 @@ countryhumans fandom dniuid
 <br>
 dsmp, 4lung+nekozuna, coffin of andy n leyley fans or whatever the fuck
 <br>
-sprunki.
+sprunki. i only like jevin cus hes BLUE
 <br>
 mandela catalogue dniuf
 <br>
