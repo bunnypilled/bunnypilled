@@ -70,7 +70,9 @@ subkit dniucf
 <br>
 felanie dni, folly ponies iwec actually
 <br>
--15 , 21+
+-15 , 20+
+<br>
+actually if ur an adult on the sfw server get?? off???? what the fuck
 <br>
 dniuf/cf any dandys world ships when im astro/cosmo 
 <br>
