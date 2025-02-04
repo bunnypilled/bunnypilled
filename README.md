@@ -38,6 +38,8 @@ adam + astro + v1 + many others irl
 <br>
 im afk offtab almost all the time, pls whisp me instead i also hav a touch comf so ff2cud/cuddpile anytime even if im sitting w sum1 C:
 <br>
+im also afk in school bc im busy so i wont respond during that time sorry :( 
+<br>
 I LUV STAMPS !!! I LAUV STAMPS CAN U TELL. C
 <br>
 i dont consider myself to be a dw fan/in the fandom? im js an irl but ill probably leave u alone if u have fndmdni in ur name :") idont wanna make u uncomf
