@@ -54,6 +54,8 @@ i dont consider myself to be a dw fan/in the fandom? im js an irl but ill probab
 <br>
 countryhumans fandom dniuid
 <br>
+benevoient and co (friends, followers, etc)
+<br>
 dsmp, 4lung+nekozuna, coffin of andy n leyley fans or whatever the fuck
 <br>
 sprunki. i only like jevin cus hes BLUE
