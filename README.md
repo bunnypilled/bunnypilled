@@ -18,7 +18,7 @@ PLSPLSPLSPLS PLEASE THINK OF ME AS THE BUNNY PERSON PLEAG,,
 
 **basic info !**
 <br>
-7teen, bun/buns - they/he 4 friends
+8teen, bun/buns - they/he 4 friends
 <br>
 ^ check prns page 4 mor info 
 <br>
