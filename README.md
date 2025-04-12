@@ -12,7 +12,7 @@
 
 <p align="center"
 
-[pronouns page](https://en.pronouns.page/@robotpilled)ㅤㅤ[rentry](https://rentry.co/webcam)
+[pronouns page](https://en.pronouns.page/@robotpilled)ㅤㅤ[rentry](https://rentry.co/internetbuny)
 
 <p align="center"
 
