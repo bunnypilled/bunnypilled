@@ -19,6 +19,10 @@
 dni is in about me :3 
 
 <p align="center"
+
+<i>taking a break from the internet, be back soon </i>
+
+<p align="center"
   
 ![.](https://64.media.tumblr.com/54a8b8c91be7f0b43a0fa3a07cff65dc/6dc8898458942376-ab/s400x600/49134a63ab1c204af1695a1b5453fbc50f365a62.gifv)
 
