@@ -8,7 +8,7 @@
 
 <p align="center"
 
-[strawpage](https://3fs.straw.page/) ㅤㅤ[atabook](https://cscoop.atabook.org/)
+[strawpage](https://sparkledogs.straw.page/) ㅤㅤ[atabook](https://cscoop.atabook.org/)
 
 <p align="center"
 
