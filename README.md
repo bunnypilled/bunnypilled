@@ -20,7 +20,7 @@ dni is in about me :3
 
 <p align="center"
 
-<i>taking a break from the internet, be back soon </i>
+<i>rebranded, come find me! </i>
 
 <p align="center"
   
